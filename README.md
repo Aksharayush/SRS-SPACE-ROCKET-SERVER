@@ -12,7 +12,8 @@ But don't fly to black hole!!!! @_@
 if you flyies to black hole your server will lost the
 connection with data rought and also from earth!!
 
-            ~~{:CoderAi2507S:}~~
+            ~~{:CoderAi2507S,proband4412M:}~~
+            above given is my free fire id please invite me with you for playing
 //-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-\\
 || THINK >> BUILD >> LAUNCH >> EXPLORE >> STUDY ||
 ||             ~~{:CoderAi2507S:}~~             ||
